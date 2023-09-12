@@ -8,7 +8,7 @@
 - Escuto todos os tipos de musica
 
 
-![](https://instagram.com/rudinihadi?igshid=MzRlODBiNWFlZA==)
+![](https://media.tenor.com/IWXxwvOfvlQAAAAC/dazai.gif)
 
 
 
