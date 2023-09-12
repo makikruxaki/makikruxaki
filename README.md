@@ -8,7 +8,7 @@
 - Escuto todos os tipos de musica
 
 
-![](https://media.tenor.com/IWXxwvOfvlQAAAAC/dazai.gif)
+![](https://tenor.com/pt-BR/view/dazai-gif-22501120)
 
 
 
